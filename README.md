@@ -80,6 +80,3 @@ Brostow, Fauqueur, Cipolla (bibtex)
 
 ## Video.mp4: 4K Video of Highway traffic!
 https://www.youtube.com/watch?v=KBsqQez-O4w
-
-## Video_2.mp4
-<blockquote class="twitter-tweet"><p lang="es" dir="ltr">Persecución policial en Osasco (Sao Paulo🇧🇷). Tanto el fugitivo como el policía podrían competir en Moto GP. <a href="https://t.co/BzL0bTBdoT">pic.twitter.com/BzL0bTBdoT</a></p>&mdash; Niporwifi © (@niporwifi) <a href="https://twitter.com/niporwifi/status/1658455223239680001?ref_src=twsrc%5Etfw">May 16, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
